@@ -1,0 +1,2 @@
+# MInSysT-nakshap
+Local Shopping
